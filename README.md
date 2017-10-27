@@ -1,2 +1,2 @@
 # Stop
-You can not
+You can not stop to believe.
